@@ -14,8 +14,6 @@ Présentation - 4' (13h00-13h04)
 
 8' de correction (13h52-14h00)
 
--*-*-*-*-*-*-*-*-*-
-
 ## Jour 2 - 27 novembre 2025
 
 Présentation - 4' (13h00-13h04)
