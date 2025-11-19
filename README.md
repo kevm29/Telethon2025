@@ -14,6 +14,8 @@ Présentation - 4' (13h00-13h04)
 
 8' de correction (13h52-14h00)
 
+-*-*-*-*-*-*-*-*-*-
+
 ## Jour 2 - 27 novembre 2025
 
 Présentation - 4' (13h00-13h04)
@@ -25,6 +27,8 @@ Présentation - 4' (13h00-13h04)
 **Enquête n°4 - Marie GUINDE et ses soucis administratifs autour de la Méditerranée (XIXe siècle)** - 30' (13h22-13h52)
 
 8' de correction (13h52-14h00)
+
+-*-*-*-*-
 
 ## Remise des prix
 Après étude des scores - Celui/celle/ceux qui auront eu le plus de points sur l'une des deux enquêtes recevront le panier garni
